@@ -3145,5 +3145,30 @@ Kad je trebalo slaviti svadbu, dođoše neiskrene polusestre, da se dodvore i da
 
 Bajku **“Pepeljuga”** možete poslušati i u [**audio-zapisu**](https://lektire.skole.hr/node/12321 "Pepeljuga"), u interpretaciji **Dore Lipovčan**.
 
+Include front/back template
+Mirko i Milka – e-Lektire
+​
+​
+# Mirko i Milka 
+​
+​
+> Bio čovjek, po imenu Mirko, i žena, po imenu Milka; oni se uzeli i počeli živjeti kao mladi bračni drugovi. Jednoga dana reče Mirko: – Milka, ja idem orati, pa dok se vratim, gledaj da bude štogod…
+​
+---
+Bio čovjek, po imenu Mirko, i žena, po imenu Milka; oni se uzeli i počeli živjeti kao mladi bračni drugovi.
+​
+Jednoga dana reče Mirko:
+​
+– Milka, ja idem orati, pa dok se vratim, gledaj da bude štogod pečeno na stolu, da objedujem, i kakvo dobro piće, da ne ostanem žedan.
+​
+– Hajde ti samo, dragi Mirko, hajde – odgovori Milka. – Učinit ću ti po volji.
+​
+Kad dođe vrijeme ručku, uzme Milka kobasicu iz dimnjaka, stavi je na tavu, doda maslaca i pristavi da se peče. Dok se kobasica pekla i cvrčala, Milka držaše tavu za držak, razmišljaše o svemu i svačemu i najedamput se sjeti:
+​
+»Dok se kobasica peče, dotle možeš u podrumu natočiti piva«, i pričvrsti ručicu od tave, uzme vrč, siđe u podrum i stane točiti pivo. A dok točila, opet se sjeti:
+​
+»Oh, pas nije svezan; mogao bi odnijeti kobasicu iz tave! To bi bilo veselo!« U tren oka otrči iz podruma uza stube. No pseto već držaše kobasicu u ustima pa bježi s njome. Milka, ne budi lijena, trči za njim, pa u polje. Ali pas brži od nje, pa s kobasicom preko oranice.
+​
+– Propalo, propalo! – uzdahne Milka. Okrene se, pa će natrag kući i, kako se umorila, iđaše polagano, da se rashladi.
 
 
