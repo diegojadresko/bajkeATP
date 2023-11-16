@@ -80,14 +80,8 @@ Nato iziđe i stara baka, još živa; jedva disaše. Crvenkapica donese kamenja,
 
 Sve troje bijaše zadovoljno. Lovac oderao s vuka krzno i otišao kući; baka uživala u kolačima, pila vino što ga je donijela Crvenkapica, i opet se oporavila, a Crvenkapica umovala: »Ne smiješ nikad više sama skrenuti s puta i trčati u šumu, kada ti majka zabrani.«
 
-Bajku **“Crvenkapica”** možete poslušati i u **[audio-zapisu](https://lektire.skole.hr/node/12321 "Crvenkapica")**, u interpretaciji **Dore Lipovčan**.
 
 # Ukleti Kraljević i Čelik-Henrik
-
-Ovo je bajka o ukletom kraljeviću.
-
-
-# Ukleti Kraljević i Čelik-Henrik – e-Lektire
 
 > U staro doba, kad su se želje još ispunjale, živio neki kralj, koji je imao sve same lijepe kćeri, no najmlađa bila tako lijepa, te se i sunce, koje je toliko svijeta vidjelo, uvijek divilo…
 
@@ -284,9 +278,6 @@ A kad sedmi ispi do dna, dokotrlja mu se prstenčić. Gavran pogleda i prepozna 
 # Bremenski gradski svirači
 
 
-
-# Bremenski gradski svirači – e-Lektire
-
 Ovo je bajka o bremenskim gradskim sviračima.
 
 > Imao čovjek magarca, koji je već mnogo godina strpljivo nosio vreće u mlinicu; ali magarcu snaga jenjavala, te on postajao sve nesposobniji za rad. Njegovu gospodaru pade na um da ga prestane hraniti…
@@ -436,7 +427,6 @@ Kad svanulo, turi momak svojih pedeset talira u džep pa udari širokom cestom. 
 
 Uto ga srete čovjek, koji je čuo kako momak sam sa sobom razgovara, pa kad se zaputili zajedno dalje i došli nadomak nekih vješala, reče mu suputnik:
 
-– Vidiš li ono drvo? Tamo su sedmorica slavila svadbu s užarevom kćerkom,[<sup title=" t. j. uže omastila. - Prev.  ">1</sup> t. j. uže omastila. - Prev.](https://lektire.skole.hr/stranica/prica-o-covjeku-koji-je-htio-da-nauci-strahovati/#_ftn1) a sad uče letjeti; sjedni ispod njih i čekaj, dok se smrkne, naučit ćeš strahovati.
 
 – Ako nema ništa više – doda momak – lako ćemo za to; a naučim li tako brzo strahovati, tvoje je pedeset talira; ujutro opet dođi.
 
@@ -501,8 +491,6 @@ Sutradan otiđe momak kralju pa mu reče:
 Kralj ga pogleda, pa kako mu se svidio, upozori ga:
 
 – Slobodno ti birati tri stvari, dakako, nežive, koje smiješ sa sobom uzeti.
-
-– Molim dakle vatre, tokarsku klupu i djelaču[<sup title=" t. j. drvenu klupu sa stezaljkom, kojom se pričvrsti dúga, da se mogne blanjati. - Prev.  ">2</sup> t. j. drvenu klupu sa stezaljkom, kojom se pričvrsti dúga, da se mogne blanjati. - Prev.](https://lektire.skole.hr/stranica/prica-o-covjeku-koji-je-htio-da-nauci-strahovati/#_ftn2) s makljicom[<sup title=" Makljica: uvinut nož sa dva drška. - Prev.  ">3</sup> Makljica: uvinut nož sa dva drška. - Prev.](https://lektire.skole.hr/stranica/prica-o-covjeku-koji-je-htio-da-nauci-strahovati/#_ftn3) . Kralj naredi, da se sve to još za dana odnese u začarane dvore. Kad se primakla noć, momak otiđe gore, naloži u jednoj izbi veliku vatru, postavi djelaču s makljicom kraj nje i sjedne na tokarsku klupu. »Da mi je samo strahovati!« uzdahne. »Ali to ni ovdje neću naučiti.«
 
 Oko ponoći htjede malo podjariti vatru; dok je tako potpirivao, iznenada se odnekle ču krik: – »Uh, uh, što je studeno!«
 
@@ -656,9 +644,7 @@ Kada je mladi kralj noću spavao, skine mu žena pokrivač i saspe na njega vjed
 
 Kada djevojka prisluškujući za vratima oču tu želju, iziđe pred braću, i u taj čas poprime gavrani opet svoje ljudsko obličje. Svi se milovahu i cjelivahu, a onda veselo odoše doma.
 
-
-
-# Mudra seljanka – e-Lektire
+# Mudra seljanka
 
 Ovo je bajka o mudroj seljanki
 
@@ -734,8 +720,7 @@ Napokon dođe njegova žena pa će mu reći:
 – Draga ženo, ti treba da budeš moja, a ja tvoj – nadoveže kralj suznih očiju, i odvede je opet u kraljevske dvore, te se ponovo vjenčaju. Bit će da su živi i dandanas.
 
 # Palčić 
-
-> 
+ 
 > Bio neki siromašni seljak pa uvečer sjedio kod ognjišta i poticao vatru, dok mu žena prela. Jednom on reče ženi: – Doista je žalosno što nemamo djece! Tako je tiho u nas, a u drugim kućama bučno i…
 
 ---
@@ -911,8 +896,6 @@ Zatim zamahne i svom snagom kresne vuka po glavi, te se zvijer sruši mrtva. Nap
 
 – A mi te ni za što na svijetu više ne prodajemo – govorahu roditelji milujući i grleći Palčića. Dadoše mu da jede i pije, sašiju mu novu odjeću, jer se ona, koja bijaše na njemu, sva od puta otrcala.
 
-
-
 # Trnoružica – e-Lektire
 
 Ovo je bajka o Trnoružici.
@@ -958,12 +941,9 @@ Zatim pođe dalje i vidje gdje u dvorani svi dvorjanici spavaju, a gore pred pri
 
 Probudili se i konji u staji te se stali otresati; i lovački psi skakali i mahali repovima; golubovi na krovu izvukli glavice ispod krila, stali se ogledati i odletjeli u polje; oživjele i muhe na zidu; razbudila se vatra u kuhinji, stala plamtjeti i kuhati jelo; pečenka opet zacvrčila, kuhar udario momka te ovaj vrisnuo, a sluškinja operušala kokoš. Napokon proslavili svadbu, raskošnu i sjajnu, te kraljević poživio s Ružicom zadovoljno sve do smrti.
 
-Bajku **“Trnoružica”** možete poslušati i u **[audio-zapisu](https://lektire.skole.hr/node/12321 "Bajke")**, u interpretaciji **Nikše Marinovića**.
-
 
 # Vuk i sedmoro jaradi 
 
-> ## Excerpt
 > Bila jednom stara koza; imala sedmoro jaradi, a voljela ih kao što majka voli svoju djecu. Jednoga se dana spremala u šumu po nešto krme, te ih sazva sve sedmoro i reče: – Draga djeco, ja ću u šumu…
 
 ---
@@ -1128,10 +1108,6 @@ Htio ne htio, muž morade i treću želju izreći, da mu se žena oslobodi sedla
 Od svega bogataš nije ništa drugo imao doli srdžbe, truda, pogrda i propaloga konja; siromasi su živjeli zadovoljno, tiho i pobožno sve do svoga sretnoga svršetka.
 
 
-Bajku **“Vuk i sedmoro jaradi”** možete poslušati i u [**audio-zapisu**](https://lektire.skole.hr/node/12321 "Vuk i sedmoro jaradi"), u interpretaciji **Nikše Marinovića**.
-
-
-
 # Tri čovječuljka u šumi 
 
 
@@ -1282,8 +1258,6 @@ Kralj se silno obradova. Ali kraljicu sakrije u sobi do nedjelje, kad je trebalo
 – Izrekla si sebi osudu – odrešito će kralj.
 
 Naloži da se donese takva bačva i u nju ugura maćeha zajedno sa svojom kćeri. Zatim u utor umetnu dno i tako zatvorenu bačvu pustiše nizbrdo, te se otkotrlja u rijeku.
-
-
 
 # Kralj Bradonja – e-Lektire
 
@@ -1594,7 +1568,7 @@ Otada življahu zajedno u sreći i blaženstvu sve do svoje smrti.
 
 
 
-# Doktor Sveznalica – e-Lektire
+# Doktor Sveznalica
 
 Ovo je bajka o doktoru svezbalici.
 
@@ -1746,7 +1720,7 @@ Kad kuharica prispije i opazi ribnjak, prigne se i htjedne ga ispiti. Ali patka 
 
 
 
-# Snjeguljica – e-Lektire
+# Snjeguljica 
 
 Ovo je bajka o Snjeguljici
 
@@ -1772,8 +1746,6 @@ Snjeguljica međutim rasla i svaki dan postajala ljepšom, pa u svojoj sedmoj go
 
 _– Zrcalo, zrcalo, prijatelju moj,  
 Tko je najljepši u zemlji svoj?_
-
-
 
 # Dvanaestorica braće 
 
@@ -2107,13 +2079,10 @@ A zrcalo joj odgovori:
 _– Ovdje ste, kraljice, ljepši od svih,  
 Ali Snjeguljica je ljepša nego vi._
 
-Nato ta zločesta žena opsuje nešto ružno, i spopane je takva tjeskoba, da ne znade šta će. Prvo ne htjede na svadbu; ali kako bijaše radoznala, ipak ode da vidi mladu kraljicu. Čim stupi u dvoranu, prepozna Snjeguljicu i od silnoga straha bude kao skamenjena. Ali već joj u dvoranu kliještima donesoše usijane željezne papuče, staviše ih pred nju i ona morade u njima plesati, sve dok mrtva ne pade na zemlju.
-
-Bajku **“Snjeguljica”** možete poslušati i u **[audio-zapisu](https://lektire.skole.hr/node/12321 "Bajke")**, u interpretaciji **Nikše Marinovića**.
+Nato ta zločesta žena opsuje nešto ružno, i spopane je takva tjeskoba, da ne znade šta će. Prvo ne htjede na svadbu; ali kako bijaše radoznala, ipak ode da vidi mladu kraljicu. Čim stupi u dvoranu, prepozna Snjeguljicu i od silnoga straha bude kao skamenjena. Ali već joj u dvoranu kliještima donesoše usijane željezne papuče, staviše ih pred nju i ona morade u njima plesati, sve dok mrtva ne pade na zemlju
 
 
-
-# Mudri ljudi – e-Lektire
+# Mudri ljudi 
 
 Ovo je bajka o mudrim ljudima.
 
@@ -2217,8 +2186,6 @@ Kad je seljak stigao kući, smjesti konja u staju pokraj krave, ode k ženi i re
 »Dobra je to trgovina: za dvije rđave krave – gizdava konja i k tomu punu kesu novaca. Kad bi glupost uvijek ovako donosila, mnogo bih je cijenio.«
 
 Tako mišljaše seljak, ali tebi su glupaci zacijelo miliji.
-
-
 
 # Mudra Jelka 
 
@@ -2327,9 +2294,7 @@ Otrči kući, ali vrata bijahu zaključana; zatim pokuca na prozor i vikne:
 
 Kad su ljudi čuli zvečanje zvončića, ne htjedoše joj otvoriti, i tako se mudra Jelka nigdje ne mogaše skloniti. Napokon pobjegne iz sela, i više je nitko ne vidje.
 
-
-
-# Braco i seka – e-Lektire
+# Braco i seka 
 
 Ovo je bajka o braci i seki.
 
@@ -2506,8 +2471,6 @@ Kralj se ne mogaše uzdržati, priđe k njoj i reče:
 
 – Da, ja sam tvoja draga žena – potvrdi ona. I toga časa oživje i bi zdrava, rumena i radosna. Zatim ispriča kralju o zločinu, što ga počiniše vještica i njezina kći. Kralj naloži da se obje izvedu na sud, i budu osuđene. Kćer odvedoše u šumu, te je razderaše divlje zvijeri, a vješticu baciše u vatru te je izgorjela. I kad od nje ne osta ništa drugo nego pepeo, lane opet poprimi ljudsko obličje. Seka i braco življahu otada zajedno i sretno sve do svoje smrti.
 
-
-
 # Šestorica obilaze svijetom
 
 > Bio neki čovjek, koji je umio svašta; služio u ratu valjano i hrabro, no kad je rat svršio, otpustili ga davši mu tri filira popudbine. »Čekaj, nećemo baš tako. Nađem li pravih ljudi, dat će mi kralj…
@@ -2647,7 +2610,7 @@ A naša šestorica odnesoše blago kući, podijeliše ga između sebe i poživje
 
 
 
-# Siromašni mlinarski momčić i maca – e-Lektire
+# Siromašni mlinarski momčić i maca
 
 Ovo je bajka o siromašnom mlinarskom momčiću i maci.
 
@@ -2852,7 +2815,7 @@ Kočijaš pruži ženi sjekiru i urlikne:
 
 
 
-# Sretni Ivo – e-Lektire
+# Sretni Ivo
 
 Ovo je bajka o sretnom Ivi
 
@@ -3143,7 +3106,7 @@ Kliknuvši, slete sa drveta i sjednu Pepeljugi na ramena, jedna s lijeve, druga 
 
 Kad je trebalo slaviti svadbu, dođoše neiskrene polusestre, da se dodvore i da s Pepeljugom sreću dijele. Kad su zaručnici pošli u crkvu, bila je najstarija sestra s desne, a najmlađa s lijeve strane, i golubice iskljuju svakoj po jedno oko. A kad su izlazili iz crkve, bila je najstarija s lijeve, a najmlađa s desne strane; i golubice iskljuju svakoj drugo oko. I tako za svoju zlobu i neiskrenost biše kažnjene sljepoćom za čitav život.
 
-Bajku **“Pepeljuga”** možete poslušati i u [**audio-zapisu**](https://lektire.skole.hr/node/12321 "Pepeljuga"), u interpretaciji **Dore Lipovčan**.
+
 
 Include front/back template
 Mirko i Milka – e-Lektire
