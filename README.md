@@ -1,7 +1,7 @@
 # bajkeATP
 Ovdje ćemo raditi s bajkama.
 
-1.[Crvenkapica]
+1.(Crvenkapica)
 
 # Crvenkapica
 
