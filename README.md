@@ -1,8 +1,6 @@
 # bajkeATP
 Ovdje ćemo raditi s bajkama.
 
-1.(Crvenkapica)
-
 # Crvenkapica
 
 Ovo je bajka o Crvenkapici.
