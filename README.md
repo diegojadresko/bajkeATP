@@ -9,6 +9,54 @@ Ovdje ćemo raditi s bajkama.
 
 [Sedam Gavrana](#Sedam-Gavrana)
 
+[Klatež](#Klatež)
+
+[Bremenski gradski svirači](#Bremenski-gradski-svirači)
+
+[Priča o čovjeku koji je htio da nauči strahovati](#Priča-o-čovjeku-koji-je-htio-da-nauči-strahovati)
+
+[Mudra seljanka](#Mudra-seljanka)
+
+[Palčić](#Palčić)
+
+[Trnoružica](#Trnoružica)
+
+[Vuk i sedmoro jaradi](#Vuk-i-sedmoro-jaradi)
+
+[Siromah i bogataš](#Siromah-i-bogataš)
+
+[Tri čovječuljka u šumi](#Tri-čovječuljka-u-šumi)
+
+[Kralj bradonja](#Kralj-bradonja)
+
+[Vjerni Ivan](#Vjerni-Ivan)
+
+[Doktor Sveznalica](#Doktor-Sveznalica)
+
+[Nahod-ptica](#Nahod-ptica)
+
+[Snjeguljica](#Snjeguljica)
+
+[Dvanaestero braće](#Dvanaestero-braće)
+
+[Mudri ljudi](#Mudri-ljudi)
+
+[Mudra Jelka](#Mudra-Jelka)
+
+[Braco i seka](#Braco-i-seka)
+
+[Šestorica obilaze svijetom](#Šestorica-obilaze-svijetom)
+
+[Siromašni mlinarski momčić i maca](#Siromašni-mlinarski-momčić-i-maca)
+
+[Pas i vrabac](#Pas-i-vrabac)
+
+[Sretni Ivo](#Sretni-Ivo)
+
+[Pepeljuga](#Pepeljuga)
+
+[Mirko i Milka](#Mirko-i-Milka)
+
 
 # Crvenkapica
 
