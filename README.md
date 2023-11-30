@@ -7,6 +7,8 @@ Ovdje ćemo raditi s bajkama.
 
 [Ukleti Kraljević i Čelik Henrik](#Ukleti-Kraljević-I-Čelik-Henrik)
 
+[Sedam Gavrana](#Sedam-Gavrana)
+
 
 # Crvenkapica
 
