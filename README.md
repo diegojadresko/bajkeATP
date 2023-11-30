@@ -4,7 +4,7 @@ Ovdje ćemo raditi s bajkama.
 # Naslovi
 
 [Crvenkapica](#Crvenkapica)
-[Ukleti Kraljević i Čelik-Henrik](#UkletiKraljevićiČelik-Henrik)
+[Ukleti kraljević i Čelik-Henrik](#Ukleti kraljević i Čelik-Henrik)
 
 
 # Crvenkapica
