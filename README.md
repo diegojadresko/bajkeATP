@@ -5,7 +5,7 @@ Ovdje ćemo raditi s bajkama.
 
 [Crvenkapica](#Crvenkapica)
 
-[Ukleti kraljević i Čelik-Henrik](#Ukleti kraljević i Čelik-Henrik)
+[Ukleti Kraljević i Čelik-Henrik](# Ukleti Kraljević i Čelik-Henrik)
 
 
 # Crvenkapica
