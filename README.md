@@ -37,7 +37,7 @@ Ovdje ćemo raditi s bajkama.
 
 [Snjeguljica](#Snjeguljica)
 
-[Dvanaestero braće](#Dvanaestero-braće)
+[Dvanaestorica braće](#Dvanaestorica-braće)
 
 [Mudri ljudi](#Mudri-ljudi)
 
